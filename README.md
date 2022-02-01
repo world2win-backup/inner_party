@@ -7,3 +7,5 @@
 
 credits to zhihu gong-ge-cheng-52
 
+Eng;ish:
+https://germinalbooks.files.wordpress.com/2021/12/qin_inner_party_bourgeoisie_in_socialism.pdf
